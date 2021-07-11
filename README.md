@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ardaxzyy
+- 🌱 I’m currently learning hacks
+- 📫 How to reach me / discord = ardaxzy#0001
